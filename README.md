@@ -1,6 +1,6 @@
 # **Автоматизированное рабочее место библиотекаря**
 ## Отчет
-
+https://disk.yandex.ru/i/uvhPlRAtrMqkHg
 
 ## Видео отчет
 https://disk.yandex.ru/i/JUjX6XwWHKrChQ
